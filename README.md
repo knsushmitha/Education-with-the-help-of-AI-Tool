@@ -1,1 +1,0 @@
-# Education-with-the-help-of-AI-Tool
